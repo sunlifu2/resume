@@ -1,7 +1,7 @@
 # Resume of **Your Name**
 
 **Cloud & AI/ML Engineer | Adult Learning Facilitator**<br>
-**Contact:** 📱 9633 1234 | 📧 your_email_id@gmail.com<br>
+**Contact:** 📱 9633 5678 | 📧 your_email_id@gmail.com<br>
 **Location:** 📍 Singapore<br>
 **Links:** 🔗 [LinkedIn](https://linkedin.com/in/your-profile-id)
 
