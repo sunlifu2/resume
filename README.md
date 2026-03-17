@@ -2,7 +2,8 @@
 
 **Cloud & AI/ML Engineer | Adult Learning Facilitator**<br>
 **Contact:** 📱 9633 1234 | 📧 your_email_id@gmail.com<br>
-**Location:** 📍 Singapore **Links:** 🔗 [LinkedIn](https://linkedin.com)
+**Location:** 📍 Singapore<br>
+**Links:** 🔗 [LinkedIn](https://linkedin.com/in/your-profile-id)
 
 ---
 
